@@ -1,6 +1,6 @@
 # Richard Boyer
 
-**Marketing | Business Analytics | Product & Partner Strategy | AI Strategy | Applied AI**
+**Marketing | Product & Partner Strategy | Business Analytics | AI Strategy | Applied AI**
 
 Senior business and marketing leader with 20+ years of experience across B2B technology, product management, partner ecosystems, and international marketing.
 
